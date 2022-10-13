@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @gabcatucci
+- 👀 I’m interested in exploring the tech world! 
+- 🌱 I’m currently learning how to code and am a super beginner!
+- 👏 Thank you in advance for all of your help!  I hope to soon be able to return the favor =].
